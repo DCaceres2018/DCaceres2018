@@ -1,6 +1,6 @@
 ### Hi there 👋
  # 💫 About Me:
-I am currently working for EY as a Technology Consultant.<br>I am finishing an Online Blockchain & Web3 Business Master with Founderz. <br>I consider myself an enthusiastic programmer who always wants to improve and learn. Challenges are my biggest passion and I love to work feeling fulfilled. <\br>
+I am currently working for EY as a Technology Consultant.<br>I am finishing an Online Blockchain & Web3 Business Master with Founderz. <br>I consider myself an enthusiastic programmer who always wants to improve and learn. Challenges are my biggest passion and I love to work feeling fulfilled. 
 
 
 ## 🌐 Socials:
